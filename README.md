@@ -10,9 +10,9 @@ A collections of different ideas
 >
 ># my-favorites
 >
-*##Upcoming "Lyza's Birthday on Nov 2025"##
+> *##Upcoming "Lyza's Birthday on Nov 2025"##
 >
-https://github.com/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb
+> https://github.com/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb
 
 > # new-topics
 >
