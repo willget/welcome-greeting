@@ -36,7 +36,7 @@ A collections of different ideas
 
 
 > ####
-### 🛍️ Personal Link🛒[******shopee.ph/willy46047]
+### 🛍️ Personal Link🛒([******shopee.ph/willy46047])*]
 
 
 
