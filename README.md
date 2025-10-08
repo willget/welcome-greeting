@@ -9,27 +9,29 @@ A collections of different ideas
   ## [Youtube]🌐
   [******[Watch Youtube channel*](https://www.youtube.com/@WilliamFamily-1938)]
 > ![inbound2671276883112023530](https://github.com/user-attachments/assets/c617cd10-03a7-46ee-9a6a-afc19f828458)
-> # How's Your Day?
+>####
+ # How's Your Day?
 - ## Happy Birthday Vryan G.
 > ![inbound7923725360760416067](https://github.com/user-attachments/assets/f110e80c-6bf6-40db-a100-ebde68c0f257)
->
-># My Favorites
+>####
+# My Favorites
 >####
  ## Upcoming
 - # [Lyza's- Birthday on Nov 2025]
->  ## Watch here👉👉 [***[*Lyza's Video](https://github.com/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*]
+ > ####
+  ## Watch here👉👉 [***[*Lyza's Video](https://github.com/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*]
 
-####
-> # New Topics
+>####
+# New Topics
  # Play Music [******[*Play NOW*🎹🎸🎺]](https://open.spotify.com/track/1rWKWAuvosIKUJkzapuUlW?si=3WzvnoHnTomu8ip6To4yBA)*]
 > ####
 # Open [******[*Spotify Music🎹🎺🎸]](https://open.spotify.com/track/7i6fhlzpTeObDTsISlsU8Z?si=IYljRYc2QliwQ6gnB3Bu-g)*] 
 # Open [******[*Spotify Music🎸🎸🎺]](https://open.spotify.com/track/2goLsvvODILDzeeiT4dAoR?si=RrZCFhjeSuqseMEf8-eMgg)*]
-> # Open [******[*Spotify Music🎺🎺🎹]](https://open.spotify.com/album/05oIiY7Wj3JQG2uzTmgNRB?si=yhj5JZrCRBmqyAmuaOZeGQ)*]
+# Open [******[*Spotify Music🎺🎺🎹]](https://open.spotify.com/album/05oIiY7Wj3JQG2uzTmgNRB?si=yhj5JZrCRBmqyAmuaOZeGQ)*]
 >####
-> # my personal link
+# my personal link
 > ####
-- ### [Wordpress]
+### [Wordpress]
 -  #[🌐Personal Private Site](https://william3164.wordpress.com))
 
 
