@@ -20,7 +20,7 @@ A collections of different ideas
 
 
 > # New Topics
-> #Play Music [******[*Play NOW*🎹🎸🎺](https://open.spotify.com/track/0TX4O1sHvHLxyQhpr0mkEU?si=HlsYC8PeQHaRAl48i6RDqA)*]
+> #Play Music [******[*Play NOW*🎹🎸🎺](https://open.spotify.com/track/1rWKWAuvosIKUJkzapuUlW?si=3WzvnoHnTomu8ip6To4yBA )*]
 >
 > # my personal link
 - ### [Wordpress]
