@@ -20,10 +20,9 @@ A collections of different ideas
 
 
 > # New Topics
-> # Play Music [******[*Play NOW*🎹🎸🎺]>
+> # Play Music [******[*Play NOW*🎹🎸🎺]
 [(https://open.spotify.com/track/1rWKWAuvosIKUJkzapuUlW?si=3WzvnoHnTomu8ip6To4yBA )*]
-
-> # [****Spotify 🎹🎹Music* ]
+# [****Spotify 🎹🎹Music* ]
 [*****https://open.spotify.com/track/7i6fhlzpTeObDTsISlsU8Z?si=IYljRYc2QliwQ6gnB3Bu-g    ]
 >
 > # my personal link
