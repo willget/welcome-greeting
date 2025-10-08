@@ -23,7 +23,7 @@ A collections of different ideas
 > # Play Music [******[*Play NOW*🎹🎸🎺]](https://open.spotify.com/track/1rWKWAuvosIKUJkzapuUlW?si=3WzvnoHnTomu8ip6To4yBA)*]
 > ####
 # Open [******[*Spotify Music🎹🎺🎸*]](https://open.spotify.com/track/7i6fhlzpTeObDTsISlsU8Z?si=IYljRYc2QliwQ6gnB3Bu-g)*] 
-# Open [******[*Spotify Music🎸🎸🎺(https://open.spotify.com/track/2goLsvvODILDzeeiT4dAoR?si=RrZCFhjeSuqseMEf8-eMgg)*]
+# Open [******[*Spotify Music🎸🎸🎺]](https://open.spotify.com/track/2goLsvvODILDzeeiT4dAoR?si=RrZCFhjeSuqseMEf8-eMgg)*]
 
 > # my personal link
 - ### [Wordpress]
