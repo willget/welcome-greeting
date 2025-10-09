@@ -13,7 +13,7 @@ A collections of different ideas
 >####
  # How's Your Day?
  ####
- ## ******[*View Canva]()*]
+ ## *[*View Canva]()*🌐
 >####
 # My Favorites
 >####
