@@ -7,7 +7,7 @@ A collections of different ideas
   >  **** [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
 > *****[Watch 👉Youtube Short👈*](https://youtube.com/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
   ## Youtube 🌐
-  [******[Watch Youtube channel*](https://www.youtube.com/@WilliamFamily-1938)]
+  [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube.com/@WilliamFamily-1938)]
 >  ####
 > ![inbound2671276883112023530](https://github.com/user-attachments/assets/c617cd10-03a7-46ee-9a6a-afc19f828458)*]
 >####
@@ -20,7 +20,7 @@ A collections of different ideas
  ## Upcoming
 - ## Lyza's- Birthday on Nov 2025
  > ####
-  ## Watch here👉👉 ****[*Lyza's Video](https://github.com/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*]
+  ## Watch here👉👉 ****[*Lyza's Video](https://github.com/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️
 
 >####
 # New Topics
