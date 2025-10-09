@@ -24,7 +24,7 @@ A collections of different ideas
 
 >####
 # New Topics
- # Play Music ******[*Play NOW*🎹🎸🎺](https://open.spotify.com/track/)*💿
+ # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify.com/track/)*💿
 > ####
 # Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
 # Open *[Spotify Music🎸🎸🎺](https://open.spotify.com/)*💿
@@ -33,7 +33,7 @@ A collections of different ideas
 # my personal link
 > ####
 ### Wordpress
--  # *[*🌐Personal Private Site🌐(https://william3164.wordpress.com)*]
+-  # *[*🌐Personal Private Site🌐[[(https://william3164.wordpress.com)*]
 
 
 > ######
