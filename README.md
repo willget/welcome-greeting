@@ -38,7 +38,7 @@ A collections of different ideas
 
 > ######
 ##            🛍️                            🛒
-### 🛍️ Personal Link🛒🛒 ##  *****Shoplink*](https://shopee.ph/)*]
+### 🛍️ Personal Link🛒🛒   *****Shoplink*(https://shopee.ph/)*]
 
 
 
