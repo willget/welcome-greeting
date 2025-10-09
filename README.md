@@ -3,7 +3,7 @@
 A collections of different ideas
 >####
  ## Watch Videos on Youtube
- > [****[*click here-👉 Clip 👈from "Faded"***](https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
+ > ****[*click here-👉 Clip 👈from "Faded"***](https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
   > [ **** [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
 > [*****[Watch 👉Youtube Short👈*](https://youtube.com/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
   ## [Youtube]🌐
