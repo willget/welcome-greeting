@@ -28,7 +28,7 @@ A collections of different ideas
 > ####
 # Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
 # Open *[Spotify Music🎸🎸🎺](https://open.spotify.com/)*💿
-# Open *[Spotify Music💿(https://www.spotify.com/))*💿
+# Open *[Spotify Music💿(https://www.spotify.com)*💿
 >####
 # my personal link
 > ####
