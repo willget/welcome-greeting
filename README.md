@@ -26,21 +26,21 @@ A collections of different ideas
 # New Topics
  # Play Music ******[*Play NOW*🎹🎸🎺](https://open.spotify.com/track/)*]
 > ####
-# Open ******[*Spotify Music🎹🎺🎸](https://open.spotify.com/track/7i6fhlzpTeObDTsISlsU8Z?si=IYljRYc2QliwQ6gnB3Bu-g)*] 
-# Open ******[*Spotify Music🎸🎸🎺](https://open.spotify.com/track/2goLsvvODILDzeeiT4dAoR?si=RrZCFhjeSuqseMEf8-eMgg)*]
-# Open ******[*Spotify Music🎺🎺🎹](https://open.spotify.com/album/05oIiY7Wj3JQG2uzTmgNRB?si=yhj5JZrCRBmqyAmuaOZeGQ)*]
+# Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*] 
+# Open *[Spotify Music🎸🎸🎺](https://open.spotify.com/)*]
+# Open *[Spotify Music🎺🎺🎹](https://open.spotify.com/)*]
 >####
 # my personal link
 > ####
 ### Wordpress]
--  #[🌐Personal Private Site](https://william3164.wordpress.com))
+-  # [🌐Personal Private Site](https://william3164.wordpress.com))
 
 
 > ######
 ##            🛍️                            🛒
 ### 🛍️ Personal Link 🛒🛒 
 >  ######
- # ******[Shoplink](https://shopee.ph/)*
+ # *[Shoplink](https://shopee.ph/)*
 
 
 
