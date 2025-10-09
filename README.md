@@ -27,7 +27,7 @@ A collections of different ideas
  # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify.com/track/)*💿
 > ####
 # Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
-# Open *[Spotify Music🎸🎸🎺](https://open.spotify.com/)*💿
+# Open *[Spotify Music🎸🎸🎺](    https://play.google.com/store/apps/details?id=com.spotify.music      )*💿
 # Open *[Spotify Music💿](https://www.spotify.com)*💿
 >####
 # my personal link
