@@ -24,11 +24,11 @@ A collections of different ideas
 
 >####
 # New Topics
- # Play Music ******[*Play NOW*🎹🎸🎺]](https://open.spotify.com/track/)*]
+ # Play Music ******[*Play NOW*🎹🎸🎺](https://open.spotify.com/track/)*]
 > ####
-# Open ******[*Spotify Music🎹🎺🎸]](https://open.spotify.com/track/7i6fhlzpTeObDTsISlsU8Z?si=IYljRYc2QliwQ6gnB3Bu-g)*] 
-# Open ******[*Spotify Music🎸🎸🎺]](https://open.spotify.com/track/2goLsvvODILDzeeiT4dAoR?si=RrZCFhjeSuqseMEf8-eMgg)*]
-# Open ******[*Spotify Music🎺🎺🎹]](https://open.spotify.com/album/05oIiY7Wj3JQG2uzTmgNRB?si=yhj5JZrCRBmqyAmuaOZeGQ)*]
+# Open ******[*Spotify Music🎹🎺🎸](https://open.spotify.com/track/7i6fhlzpTeObDTsISlsU8Z?si=IYljRYc2QliwQ6gnB3Bu-g)*] 
+# Open ******[*Spotify Music🎸🎸🎺](https://open.spotify.com/track/2goLsvvODILDzeeiT4dAoR?si=RrZCFhjeSuqseMEf8-eMgg)*]
+# Open ******[*Spotify Music🎺🎺🎹](https://open.spotify.com/album/05oIiY7Wj3JQG2uzTmgNRB?si=yhj5JZrCRBmqyAmuaOZeGQ)*]
 >####
 # my personal link
 > ####
