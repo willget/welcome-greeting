@@ -43,7 +43,8 @@ A collections of different ideas
 >  ######
  # *[Shoplink](https://play.google.com/store/apps/details?id=com.shopee.ph )*
 
- * ## [(    ©©     )*]
+ * ##
+  [(    ©©     )*]
 
 
 
