@@ -36,7 +36,7 @@ A collections of different ideas
 
 
 > ####
-### 🛍️ Personal Link #[*****Shoplink*](https://shopee.ph/login)*]
+### 🛍️ Personal Link #[*****Shoplink*](https://shopee.ph/)*]
 
 
 
