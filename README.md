@@ -17,6 +17,7 @@ A collections of different ideas
 >####
 # My Favorites
 [*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
+> [******[my project*](https://gabeandreaproj4.my.canva.site/hello)*]
 >####
  ## Upcoming
 - ## Lyza's- Birthday on Nov 2025
