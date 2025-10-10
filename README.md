@@ -44,6 +44,12 @@ A collections of different ideas
  # *[Shoplink](https://play.google.com/store/apps/details?id=com.shopee.ph )*
 
 ####
+
+  >
+> # My Personal Reference
+> [*Gospel Library[(https://play.google.com/store/apps/details?id=org.lds.ldssa)*
+> ]
+
            [findshare]
 
 
