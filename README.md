@@ -2,7 +2,7 @@
 # Welcome Greeting
 A collections of different ideas
  > 
- #[****[*](https://play.google.com/store/apps/details?id=com.globe.globebenta)***]
+ #[****[🌏Loading🌏*](https://play.google.com/store/apps/details?id=com.globe.globebenta)***]
  
 >####
  ## Watch Videos on Youtube
