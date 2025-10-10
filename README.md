@@ -2,7 +2,7 @@
 # Welcome Greeting
 A collections of different ideas
  > ##
- *[****Loading🌏🌏🌏Loading*(https://play.google.com/store/apps/details?id=com.globe.globebenta)*]
+ *[****Loading🌏🌏🌏Loading*[(https://play.google.com/store/apps/details?id=com.globe.globebenta)*]
 >####
  ## Watch Videos on Youtube
  > ****[*click here-👉 Clip 👈from "Faded"***](https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
