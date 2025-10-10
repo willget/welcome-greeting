@@ -16,6 +16,7 @@ A collections of different ideas
  ## *[*View Canva]()*🌐
 >####
 # My Favorites
+[*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
 >####
  ## Upcoming
 - ## Lyza's- Birthday on Nov 2025
