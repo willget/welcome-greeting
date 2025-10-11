@@ -4,7 +4,7 @@ A collections of different ideas
  > 
  
 > ####
-# Globe Benta App Link [🔗⛓️‍💥⛓️‍💥⛓️‍💥[⛓️‍💥](https://play.google.com/store/apps/details?id=com.globe.globebenta)🔗🔗🔗]
+# Globe Benta App Link [🔗⛓️‍💥⛓️‍💥⛓️‍💥[🌐🌐🌐🌐⛓️‍💥](https://play.google.com/store/apps/details?id=com.globe.globebenta)🔗🔗🔗]
 >
 > ####
 # Gcash App Link [🔗🔗🔗[🔗🔗](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗🔗🔗]
