@@ -55,7 +55,7 @@ A collections of different ideas
   # [*Gospel Library 📖📘](https://play.google.com/store/apps/details?id=org.lds.ldssa)*
 > 
 
-           [findshare]
+           [findshare/*[*](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]
 
 
 
