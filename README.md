@@ -6,34 +6,34 @@ A collections of different ideas
  
 >####
  ## Watch Videos on Youtube
- > ****[*click here-👉 Clip 👈from "Faded"***](https://youtube.com/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
-  >  **** [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
-> *****[Watch 👉Youtube Short👈*](https://youtube.com/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
+ > ****[*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
+  >  **** [click here 👉🌐- Clip👈*](https://youtube/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
+> *****[Watch 👉Youtube Short👈*](https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
   ## Youtube 🌐
-  [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube.com/@WilliamFamily-1938)]
+  [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
 >  ####
-> ![inbound2671276883112023530](https://github.com/user-attachments/assets/c617cd10-03a7-46ee-9a6a-afc19f828458)*]
+> ![inbound2671276883112023530](https://github/user-attachments/assets/c617cd10-03a7-46ee-9a6a-afc19f828458)*]
 >####
  # How's Your Day?
  ####
  ## *[*View Canva]()*🌐
 >####
 # My Favorites
-[*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
+[*****[*# My Canva Acct*](https://play.google/store/apps/details?id=com.canva.editor)****]
 > [******[my project*](https://gabeandreaproj4.my.canva.site/hello)*]
 >####
  ## Upcoming
 - ## Lyza's- Birthday on Nov 2025
  > ####
-  ## Watch here👉👉 ****[*Lyza's Video](https://github.com/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️
+  ## Watch here👉👉 ****[*Lyza's Video](https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️
 
 >####
 # New Topics
- # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify.com/track/)*💿
+ # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify/track/)*💿
 > ####
-# Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
-# Open *[Spotify Music🎸🎸🎺](    https://play.google.com/store/apps/details?id=com.spotify.music      )*💿
-# Open *[Spotify Music💿](https://www.spotify.com)*💿
+# Open *[Spotify Music🎹🎺🎸](https://open.spotify/)*💿 
+# Open *[Spotify Music🎸🎸🎺](    https://play.google/store/apps/details?id=com.spotify.music      )*💿
+# Open *[Spotify Music💿](https://www.spotify)*💿
 >####
 # my personal link
 > ####
@@ -46,7 +46,7 @@ A collections of different ideas
  #        🛍️            🛒
 ### 🛍️ Personal Link 🛒🛒 
 >  ######
- # *[Shoplink](https://play.google.com/store/apps/details?id=com.shopee.ph )*
+ # *[Shoplink](https://play.google/store/apps/details?id=com.shopee.ph )*
 
 ####
 
