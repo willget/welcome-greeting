@@ -67,7 +67,10 @@ A collections of different ideas
 
 > 
 
-           [findshare/*[*](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]
+           [findshare/*[*](https://play.google.com/store/apps/details?id=com.absi.t
 
+
+           
+https://github.com/willget/welcome-greeting/blob/30b1ab6b77fa075c0ad3f5b05dbc5f6dd04f5ba2/README.md
 
 
