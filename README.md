@@ -36,6 +36,9 @@ A collections of different ideas
 
 >####
 # New Topics
+
+####
+[🔗🔠🔠[Chrome🔠](https://play.google.com/store/apps/details?id=com.android.chrome)🔠🔠🔠🔗]
  # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify/track/)*💿
 > ####
 # Open *[Spotify Music🎹🎺🎸](https://open.spotify/)*💿 
