@@ -49,7 +49,7 @@ A collections of different ideas
  # *[🌐Personal Private Site🌐](https://william3164.wordpress.com/)*
 
  >####
-># [▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️](https://play.google.com/store/apps/details?id=com.instagram.android)⏮️🔼]
+># [▶️⏩⏭️⏯️◀️[⏪⏪⏭️⏭️](https://play.google.com/store/apps/details?id=instagram.android)⏮️🔼]
 
 
  ######
