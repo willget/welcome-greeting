@@ -3,7 +3,8 @@
 A collections of different ideas
  > 
 
-# ****Wordpress**[https://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?preview_id=11&preview_nonce=f6e7f139b3&preview=true&_thumbnail_id=58)*][Wordpress]
+####
+# ****Wordpress** [👉https://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?preview_id=11&preview_nonce=f6e7f139b3&preview=true&_thumbnail_id=58👈)*][Wordpress]
  
 > ####
 # Globe Benta App Link [🔗⛓️‍💥⛓️‍💥⛓️‍💥[🌐🌐🌐🌐⛓️‍💥](https://play.google.com/store/apps/details?id=com.globe.globebenta)🔗🔗🔗]
