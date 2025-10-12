@@ -70,7 +70,7 @@ A collections of different ideas
 
 > 
 
-           [findshare/*[*](https://play.google.com/store/apps/details?id=com.absi.t
+           [findshare/*[*](https://play.google.com/store/apps/details?id=absi.t
 
 
            
