@@ -4,7 +4,7 @@ A collections of different ideas
  > 
 
 ####
-# [👉👉👉[(https://play.google.com/store/apps/details?id=com.android.chrome]👈👈👈👈]
+# 👉👉👉[(https://play.google.com/store/apps/details?id=com.android.chrome)👈👈👈👈]
  
 > ####
 # Globe Benta App Link [🔗⛓️‍💥⛓️‍💥⛓️‍💥[🌐🌐🌐🌐⛓️‍💥](https://play.google.com/store/apps/details?id=com.globe.globebenta)🔗🔗🔗]
