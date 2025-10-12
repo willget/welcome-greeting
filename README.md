@@ -34,7 +34,7 @@ A collections of different ideas
  ## *[*View Canva]()*🌐
 >####
 # My Favorites
-[*****[*# My Canva Acct*](https://play.google/store/apps/details?id=com.canva.editor)****]
+[*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
 > [******[my project*](https://gabeandreaproj4.my.canva.site/hello)*]
 >####
  ## Upcoming
