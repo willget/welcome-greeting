@@ -5,7 +5,7 @@ A collections of different ideas
 
 ####
 >
-# [👉👉👉👉(https://play.google.com/store/app/details?id=com.googlechrome.android)👉👉👉👉]
+# [*****[*](https://play.google.com/store/apps/details?id=com.android.chrome)***]
  
 > ####
 # Globe Benta App Link [🔗⛓️‍💥⛓️‍💥⛓️‍💥[🌐🌐🌐🌐⛓️‍💥](https://play.google.com/store/apps/details?id=com.globe.globebenta)🔗🔗🔗]
