@@ -23,7 +23,7 @@ A collections of different ideas
 
  ##
  # Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
- >            📩📩 # Type your message
+ >            📩📩 # Type your message 
 >  #             ☝️copy send👉[https://Messenger.com/m.me]
 >####
  ## Watch Videos on Youtube
