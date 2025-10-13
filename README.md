@@ -42,7 +42,7 @@ A collections of different ideas
  > ####
   ## Watch here👉👉 ****[*Lyza's Video](https://github/user-attachments/assets/575e043b-bd1b-42b7-a576-0d7e1e4098fb)*🖥️🖥️🖥️
   ####
- ## [***[*📷📸📷Photo Gallery 📸📷📸🔒🔒](https://play.google.com/store/apps/details?id=com.coloros.gallery3d)****]
+ ## [***[*📷📸📷Photo Gallery 📸📷📸🔒🔒](https://play.google/store/apps/details?id=com.coloros.gallery3d)****]
 
 >####
 # New Topics
