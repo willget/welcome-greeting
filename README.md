@@ -24,7 +24,7 @@ A collections of different ideas
  ##
  # Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
  >            📩📩 # Type your message
->  #            send👉[https://Messenger.com/m.me]
+>  #             ☝️copy send👉[https://Messenger.com/m.me]
 >####
  ## Watch Videos on Youtube
  > ****[*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
