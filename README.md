@@ -18,7 +18,7 @@ A collections of different ideas
 # Gcash App Link [Download👉[🔗💵💳💰🪙📩💌🏧👈Application](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
 
  ####
- # Globe🌐One App Link [🆗🆗🆗[🆗🔠🔡🔢🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)🆗🆗🆗]
+ # Globe🌐One App Link [👉👉[🆗DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)🆗🆗🆗]
 >####
  ## Watch Videos on Youtube
  > ****[*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
