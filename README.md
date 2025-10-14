@@ -23,7 +23,7 @@ A collections of different ideas
 
  ##
  # Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
- >            [https://williammancenido.org(📩📩 # Type your message )
+ >            [https://williammancenido.org/GitHub(📩📩 # Type your message )
 >  #             ☝️copy send👉[https://Messenger.com/m.me]
 > # [Suggestions]
 > You might like [(https://m.youtube.com/@WilliamFamily-1938)]
