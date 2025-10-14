@@ -35,7 +35,7 @@ https://      📩📩 # Type your message
  > ****[*click here-👉 Clip 👈from "Faded"***](https://youtube/clip/UgkxnuxdLHJsQCcrb0TFZnRaZVV5-eopgoCx?si=G9NJ2874i0IeZqe6)*]  //
   >  **** [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
 > *****[Watch 👉Youtube Short👈*](https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
-  ## Youtube 🌐
+  ## [YouTube.com] 🌐
   [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
 >  ####
 
@@ -62,9 +62,9 @@ https://      📩📩 # Type your message
 [🔗🔠🔠[Chrome🔠](https://play.google.com/store/apps/details?id=com.android.chrome)🔠🔠🔠🔗]
  # Play Music *[*Play NOW*🎹🎸🎺](https://open.spotify/track/)*💿
 > ####
-# Open *[Spotify Music🎹🎺🎸](https://open.spotify/)*💿 
-# Open *[Spotify Music🎸🎸🎺](    https://play.google/store/apps/details?id=com.spotify.music      )*💿
-# Open *[Spotify Music💿](https://www.spotify)*💿
+# Open *[Spotify Music🎹🎺🎸](https://open.spotify.com/)*💿 
+# Open *[Spotify Music🎸🎸🎺](    https://play.google.com/store/apps/details?id=com.spotify.music      )*💿
+# Open *[Spotify Music💿](https://www.spotify.com)*💿
 >####
 # my personal link
 > ####
