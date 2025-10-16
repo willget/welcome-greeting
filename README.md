@@ -95,9 +95,11 @@ A collections of different ideas
 >#
 >. # [https://william311964.wordpress.com]
 
-           [findshare/*[*](https://play.google/store/apps/details?id=absi.t
+           [[*](https://play.google/store/apps/details?id=absi.t
 
 #
-      https://github.com/willget/welcome-greeting/
+      https://github.com/willget/Pho-Thos)/
+      >
+      
 
 
