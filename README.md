@@ -22,7 +22,7 @@ A collections of different ideas
  
     # Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]
     
-># Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
+# *[Globe Benta App Link 👉👉▶️DownloadApp◀️ *(https://play.google.com/store/apps/details?id=com.globe.globebenta)*]  
 >.  #
 
 >     # Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
