@@ -1,33 +1,38 @@
-#
+# What's Your Favorite Topics 
+# Copy👇 or #Paste
     # Welcome Greeting
 A collections of different ideas
  > 
 
-#
->
-    # [*****[*👈👈👈👈👉👉👉👉](https://play.google.com/store/apps/details?id=com.android.chrome)***]
+    #
+     .  # [*****[*👈👈👈👈👉👉👉👉](https://play.google.com/store/apps/details?id=com.android.chrome)***]
 
 
     [***## WATCH favorite SHOW[👉[*🖥️🖥️🖥️🖥️🖥️🖥️](https://play.google.com/store/apps/details?id=com.absi.tfctv)*]***] 👈may not always available
 
     [****[*🔜🔜🔜🔜🔜🔹WORDPRESS🔹](https://william311964.wordpress.com/2025/04/11/williamfamily-1964-2/?fbclid=IwY2xjawNYWXhleHRuA2FlbQIxMQABHioZmU1JlCjY4lZPDtA7-meLMe6kWqKk9qZT-KQzDp-nfhaTQCcHNjAh13FX_aem_aiJ07ShSSaSrI8yi0TcU4g)***]
 
- ####
+    ####
  Load Here 
- # 👇
-> #
-    # Globe Benta App Link [👉👉[▶️DownloadApp◀️👈](https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
+    # 👇
+.  #
+ 
+    # Globe Benta App Link [👉👉[▶️DownloadApp◀️(https://play.google.com/store/apps/details?id=com.globe.globebenta)]  
 >
-> #
-    # Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
+>.  #
+
+>     # Gcash App Link [👉[🔗💵💳💰🪙📩💌🏧👈DownloadApplication](https://play.google.com/store/apps/details?id=com.globe.gcash.android)🔗👈] 
 
  ##
     # Globe🌐One App Link [👉[DownloadApplication🆗](https://play.google.com/store/apps/details?id=ph.com.globe.globeonesuperapp)]
  >            [https://YouTube.com/WilliamFamily-1938(
     📩https://youtube.com/playlist?list=PLjcUTPaBahP08gU0hXAC3WSIQYuL4F1lQ&si=NWSqoUeVqB4tTmYA📩Type your message )
->  #             ☝️copy send👉[https://Messenger.com/m.me]
-> # [Suggestions]
-> You might like             [(https://m.youtube.com/@WilliamFamily-1938)]
+>     #             ☝️copy send👉[https://Messenger.com/m.me]
+> 
+     #[Suggestions]
+> You might like
+> 
+    [(https://m.youtube.com/@WilliamFamily-1938)]
 > #
       📩📩 https://github.com/willget/Pho-Tos/releases
  
@@ -37,18 +42,18 @@ A collections of different ideas
     **** [click here 👉🌐- Clip👈*](https://youtube.com/clip/UgkxHpKLRjADx3VWUeGvLiNlMbrH06Y7JP3F?si=-38LOzrN9KN_r7pJ)**  ]/
 >            *****[Watch 👉Youtube Short👈*](https://youtube/shorts/_NinazWF4qw?si=qUPGSSoDIYlMO0jp)**]
     ## [ ## [https://YouTube.com )]🌐]
-  [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
->  ####
+    [🖥️🖥️🖥️ [Watch Youtube channel*](https://www.youtube/@WilliamFamily-1938)]
+>     ####
 
->####
+>     ####
     # How's Your Day?
- ####
+     ####
     ## *[*View Canva]()*🌐
->####
+>     ####
     # My Favorites
-[*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
-> [******[my project*](https://gabeandreaproj4.my.canva.site/hello)*]
->####
+    [*****[*# My Canva Acct*](https://play.google.com/store/apps/details?id=com.canva.editor)****]
+>     [******[my project*](https://gabeandreaproj4.my.canva.site/hello)*]
+>     ####
     ## Upcoming
 - ## Lyza's- Birthday on Nov 2025
  > ####
