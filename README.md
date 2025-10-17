@@ -54,7 +54,7 @@ A collections of different ideas
 
 🔗https://youtube.com/clip/UgkxEORwxa6miP6qMhLIHJttumz05sXhduZE?si=Mz15ggjAhhKNpfW-
 
-🔗
+🔗https://youtube.com/clip/Ugkx1mTWQhXR-oUTWQybBylsTz9xmsU1L70H?si=JspDQ_bb1wMQkjhk
 
 🔗
 
